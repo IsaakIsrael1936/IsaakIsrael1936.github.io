@@ -59,13 +59,25 @@ Sour Cream
 
 **Making the sauce**
 
+*Put the Butter and margerine **at the same time**
 
+*Let the Butter with the Hot sauce melt.
+
+*If it is now melted, add the 4tbsp of Vinegar.
+
+*Cook it on **low heat**
+
+*It is ready if it's becomne **a little thick**
+
+*You can do this the day before or whn the chicken is frying.
+
+*The good thing about this recipe is it is very **flexible** and you can be **creative**.
 
 **Frying the chicken**
 
 *Put oil that can withstand high temperatures and make sure that the whole chickn can be submerged from it.
 
-*Heat the oil up to 150 degrees celsius or if you can see it smoking then it is ready.|
+*Heat the oil up to 150 degrees celsius or if you can see it smoking then it is ready.
 
 *Fry it for 8-12 min in **Batches**.
 
@@ -84,3 +96,15 @@ Sour Cream
 *The **double frying** will make the chicken **more crispy** because in the second fry, all of the **moisture** and oil is **removed**.
 
 **Last thing to do**
+
+*Using a **bowl** add the sauce and a small batch of chicken.
+
+***Toss** the bowl untill the sauce **fully coats** the chicken.
+
+*Put it on a plate and add your dipping sauces in the side.
+
+*You can add carrots and celery as vegetables or even pickled vegetables.
+
+*You can also eat it with rice, bread, french fries, mojos, and mashed potatoes.
+
+*Eat and serv well.
