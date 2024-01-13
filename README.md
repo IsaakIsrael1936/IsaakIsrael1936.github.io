@@ -39,3 +39,21 @@ Palm oil
 Butter
 
 Margerine
+
+**Breading for the Buffalo wings**
+
+Fish sauce
+
+Calmansi/Lime Juice
+
+Black pepper
+
+3tbsp Cornstarch
+
+**Dipping sauces options**
+
+Ranch sauce
+
+Blue Cheese dressing
+
+Sour Cream
