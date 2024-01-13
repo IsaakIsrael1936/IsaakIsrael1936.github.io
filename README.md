@@ -107,4 +107,6 @@ Sour Cream
 
 *You can also eat it with rice, bread, french fries, mojos, and mashed potatoes.
 
-*Eat and serv well.
+*Eat and serve well.
+
+*I hope you can use my recipe for your dinner, special events, or even business. Thank you very much!
