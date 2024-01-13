@@ -1,3 +1,5 @@
+theme:jekyll-theme-primer
+
 ## How to make Buffalo wings
 #Gabriel Isaac C. Almelor
 
@@ -19,4 +21,3 @@
 
 1 stick of Butter or 1 cup of Margarine
 
-theme:jekyll-theme-primer
