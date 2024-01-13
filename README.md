@@ -26,3 +26,16 @@
 
 1 stick of Butter or 1 cup of Margarine
 
+**Types of cooking oils that can be used**
+
+Canola oil
+
+Coconut oil
+
+Peanut oil
+
+Palm oil
+
+Butter
+
+Margerine
