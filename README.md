@@ -4,7 +4,11 @@
 
 ![images](https://github.com/IsaakIsrael1936/IsaakIsrael1936.github.io/assets/152355398/e164cf60-ad2b-47ca-9497-9fdfb7da6b50)
 
-**#Parts of the Chicken that will be used:**
+**History**
+
+**Buffalo wings** came from America in **Buffalo, New York** in the year of **1964** Without the Anchor Bar and the ingenuity of its owner (she wanted to re-purpose leftover cooked wings to feed her family), many a game day, bar-hopping American would likely never know you could combine **crispy wings bathed in sweet-hot sauce**.
+
+**Parts of the Chicken that will be used:**
 
 8 pieces Wings
 
@@ -12,7 +16,7 @@
  
 4 pieces Drumstick
 
-**#Sauce:**
+**Sauce:**
 
 4tbsp Vinegar
 
