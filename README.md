@@ -1,4 +1,3 @@
-theme:jekyll-theme-primer
 
 ## How to make Buffalo wings
 #Gabriel Isaac C. Almelor
