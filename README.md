@@ -57,6 +57,10 @@ Blue Cheese dressing
 
 Sour Cream
 
+**Making the sauce**
+
+
+
 **Frying the chicken**
 
 *Put oil that can withstand high temperatures and make sure that the whole chickn can be submerged from it.
@@ -73,3 +77,10 @@ Sour Cream
 
 *Make sure to **remove the small particles in the oil** because if it is not remove it will **become bitter** and **stick to the chicken**.
 
+*When the chicken have rested enough, **start to double fry** the chicken for **2-3**.
+
+*You will know if it's done if the **oil becomes calm**.
+
+*The **double frying** will make the chicken **more crispy** because in the second fry, all of the **moisture** and oil is **removed**.
+
+**Last thing to do**
