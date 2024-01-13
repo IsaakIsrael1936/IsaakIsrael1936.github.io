@@ -1,3 +1,2 @@
-## IsaakIsrael1936.github.io
+## How to make Buffalo wings
 #Gabriel Isaac C. Almelor
-#How to make buffalo wings
