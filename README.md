@@ -5,8 +5,6 @@
 
 **Parts of the Chicken that will be used:**
 
-Wings
-
-Drumette 
-
-Chicken legs
+8 pieces Wings
+10 pieces Drumette 
+4 pieces Chicken legs
