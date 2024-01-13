@@ -56,3 +56,20 @@ Ranch sauce
 Blue Cheese dressing
 
 Sour Cream
+
+**Frying the chicken**
+
+*Put oil that can withstand high temperatures and make sure that the whole chickn can be submerged from it.
+
+*Heat the oil up to 150 degrees celsius or if you can see it smoking then it is ready.|
+
+*Fry it for 8-12 min in **Batches**.
+
+*Ifyou are a beginner, do dot overcrowed the pot so you can prevent it from sticking to each other.
+
+*If you are done cooking the chicken, **let it rest** to remove the moisture and oil.
+
+*Do not turn off the stove because we need to make the oil **more hot** for the **second fry**.
+
+*Make sure to **remove the small particles in the oil** because if it is not remove it will **become bitter** and **stick to the chicken**.
+
