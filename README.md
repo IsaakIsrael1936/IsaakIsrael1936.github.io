@@ -7,6 +7,7 @@
 **History**
 
 **Buffalo wings** came from America in **Buffalo, New York** in the year of **1964** Without the Anchor Bar and the ingenuity of its owner (she wanted to re-purpose leftover cooked wings to feed her family), many a game day, bar-hopping American would likely never know you could combine **crispy wings bathed in sweet-hot sauce**.
+**Credits:**https://www.delish.com/cooking/recipe-ideas/a51133/classic-buffalo-wings-recipe/
 
 **Parts of the Chicken that will be used:**
 
